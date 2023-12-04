@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @leorobins
+- 👀 I’m interested in code
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on startups
+- 📫 @leojneves on instagram
